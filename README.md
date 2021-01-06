@@ -1,1 +1,1 @@
-# manikagoel.github.io
+# manika.goel.github.io
